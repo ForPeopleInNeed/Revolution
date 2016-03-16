@@ -21,6 +21,7 @@ Edition 1: (to be updated)
   The system will be introduce in next way.
   How are We going to Understand how much one or the other person used calories per single day. 
 Well to have this information We will need to equip every person with devices which shows how much calories person burning per day. 
+Human being will work for greater reason.
 
 
 
